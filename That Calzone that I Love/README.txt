@@ -1,0 +1,1 @@
+This piece was made for a short one-day project, which was to create a simple minimalist work of a food. Calzones are my favorite food, so naturally I chose it as my subject. Try not to let your mouth water by looking at it, that would be embarassing.
