@@ -1,0 +1,1 @@
+In my Digital Graphics class, we also dabbled a little in Photoshop. These two pieces were made for the Surrealist Project. All deeper meanings are up for interpretation
