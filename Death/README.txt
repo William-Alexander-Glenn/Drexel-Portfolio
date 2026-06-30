@@ -1,0 +1,1 @@
+In my free time, I tried out some sound design for horror games. These sounds would play when dying to an enemy. The sound would change depending on your player character.
