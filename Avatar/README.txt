@@ -1,0 +1,1 @@
+This self portrait was made for a major grade in my Digital Graphics class. My only gripe is that I wish I was a little happier when I made it.
